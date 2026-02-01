@@ -1,2 +1,0 @@
-# empty
-Amongus MOD empty
